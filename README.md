@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **2502akash@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1HFqTmouU9wWeHWiShLibytiuoy2eC5z7](https://drive.google.com/file/d/1HFqTmouU9wWeHWiShLibytiuoy2eC5z7)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1HFqTmouU9wWeHWiShLibytiuoy2eC5z7](Resume/CV)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
